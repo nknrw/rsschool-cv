@@ -1,1 +1,1 @@
-https://nknrw.github.io/rsschool-cv/cv
+https://nknrw.github.io/rsschool-cv/
